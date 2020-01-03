@@ -1,2 +1,2 @@
 # NahverkehrRheinRuhr
-Petition zum Nahverkehr Rhein Ruhr
+Petition zum Nahverkehr Rhein-Ruhr
